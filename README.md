@@ -1,0 +1,1 @@
+This is the GGOG communitys' 2025 game jam game made with two computer scientist, one electric electronical and a denstist who all love playing games and was their first time making one except myself.
